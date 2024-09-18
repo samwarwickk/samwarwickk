@@ -2,8 +2,8 @@
 - learning how to code, had to move off replit
 - learning css, html, javascript. messing around with python and java
 - i dont know enough to collab yet
-- dm or email me
-- all i really dont care
+- dm or email me if u wish to contact
+- all pronouns. i really dont care
 - im not interesting enough to have a dedicated fun fact (i like cars)
 
 <!---
