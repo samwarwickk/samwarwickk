@@ -1,5 +1,5 @@
 -  sam warwick is me. i am it
-- learning how to code, had to move off replit
+- learning how to code
 - learning css, html, javascript. messing around with python and java
 - i dont know enough to collab yet
 - dm or email me if u wish to contact
